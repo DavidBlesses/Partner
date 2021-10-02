@@ -1,5 +1,5 @@
 
-.Hello, 
+Hello, 
 I am a senior web developer and upwork expert.
 During 2 years, i got earn 5~10K US$ per month on upwork with my partner.
 My account was blocked 4 years ago so that i used my partner account during 2 years.
